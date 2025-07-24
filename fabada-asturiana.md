@@ -29,11 +29,11 @@ Fresh parsley<br/>
 
 Soak the white beans in water in a large pot overnight. Water should cover the beans by 3cm.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Bring to the boil (don't replace the water, use the soaking water). Use a slotted spoon to remove as much of the foam as you can that forms on top.
+Bring to the boil (don't replace the water, use the soaking water). Use a slotted spoon to remove as much of the foam as you can that forms on top.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Meanwhile, heat some olive oil over medium heat in a fry pan. Add the chopped onion and minced garlic and saute until they become translucent and fragrant.
+Meanwhile, heat some olive oil over medium heat in a fry pan. Add the chopped onion and minced garlic and saute until they become translucent and fragrant.
 Add the pork and bacon to the pan and brown, then add the chorizo sausage and black pudding and continue cooking for a few more minutes until lightly browned.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Pop the meat, onion and garlic along with the herbs (sans salt; this has a lot of pig in it, so leave the salt until the end) in the pot and bring to a low simmer. Cover. Cook for 2 hours covered, and continue to remove the foam and grease from the top as it forms. Remove the bay leaves after about an hour.
+Pop the meat, onion and garlic along with the herbs (sans salt; this has a lot of pig in it, so leave the salt until the end) in the pot and bring to a low simmer. Cover. Cook for 2 hours covered, and continue to remove the foam and grease from the top as it forms. Remove the bay leaves after about an hour.
 
-&nbsp;&nbsp;&nbsp;&nbsp;When almost ready, taste for saltiness and add extra if needed. I always add pepper. Serve with fresh parsley. Some fresh bread is a natural accompaniment, great for mopping up the sauce.
+When almost ready, taste for saltiness and add extra if needed. I always add pepper. Serve with fresh parsley. Some fresh bread is a natural accompaniment, great for mopping up the sauce.
