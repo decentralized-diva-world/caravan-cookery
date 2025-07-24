@@ -26,6 +26,7 @@ Fresh parsley<br/>
 </p>
 <br/>
 <br/>
+
 Soak the white beans in water in a large pot overnight. Water should cover the beans by 3cm.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bring to the boil (don't replace the water, use the soaking water). Use a slotted spoon to remove as much of the foam as you can that forms on top.
