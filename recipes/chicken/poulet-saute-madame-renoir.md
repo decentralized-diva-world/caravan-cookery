@@ -3,7 +3,7 @@ It was one of those TV chefs which first brought this dish to our attention, but
 
 While Renoir may have been a great painter, it was his wife, Aline, who was a renowned cook. And this is her signature dish. It seemed fitting to make this dish in the Champagne region as the couple resided in the small Champenoise village of Essoye. Unfortunately, Champagne is a pretty large place and it turns out Essoye isn't around the corner being over 100km south of Epernay.
 <br/><br/>
-*<p align="center">serves 4</p>*
+*<p align="center">serves 6</p>*
 <p align="center">
 6 chicken thighs<br/>
 Olive oil<br/>
