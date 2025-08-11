@@ -8,7 +8,7 @@ Morcilla is a Spanish-style blood sausage. Substitute with your local black saus
 
 The parsley is a nice touch, but, as always, sourcing it may not be the easiest when on the road. We now carry potted herbs just in case.
 <br/><br/>
-*<p align="center">serves 4</p>*
+*<p align="center">serves 6</p>*
 <p align="center">
 500g white beans<br/>
 2 pieces chorizo<br/>
