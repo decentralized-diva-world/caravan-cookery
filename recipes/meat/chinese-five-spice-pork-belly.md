@@ -9,8 +9,8 @@ Serve with rice as an accompaniment.
 <br/><br/>
 *<p align="center">serves 4</p>*
 
-*<p align="center">For the pork belly</p>*
 <p align="center">
+<i>For the pork belly:</i><br/>
 2 pork belly slices about 1 1/2 to 2cm thick<br/>
 1 tsp Chinese five spice<br/>
 1 tbl peanut oil<br/>
@@ -20,8 +20,8 @@ Serve with rice as an accompaniment.
 1 cm knob of fresh ginger<br/>
 </p>
 
-*<p align="center">For the stir-fried noodles</p>*
 <p align="center">
+<i>For the stir-fried noodles:</i><br/>
 500g fresh egg noodles (or dried equivalent)<br/>
 2 tbl peanut oil<br/>
 1 onion<br/>
@@ -38,7 +38,7 @@ Start by marinating the pork belly. Mix the Chinese five spice, honey, soy sauce
 
 When ready, remove the pork belly and barbecue until cooked (about 8 minutes). Reserve the marinade but discard the garlic and ginger.
 
-For the stir-fry noodles, prepare the vegetables. Cut the onion into eighths and dice the carrots and capsicum into bit-size pieces.
+For the stir-fried noodles, prepare the vegetables. Cut the onion into eighths and dice the carrots and capsicum into bit-size pieces.
 
 Heat up a wok or frying pan and add 1 tbl of oil. With a high heat, add the onions and stir-fry quickly. Add the carrots and capsicum and cook until hot but still with a bite. Add the garlic and ginger, fry for a further minute then remove.
 
