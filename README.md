@@ -8,7 +8,7 @@ A few notes about this cookbook...
 
 Firstly, some of these recipes aren't necessarily easy to make out of a standard caravan. We've had the time to deck out the caravan with many of the kitchen accessories we need to create a variety of meals (although it is amazing what one can accomplish with a two ring Spanish burner and a 60cm paella pan). So, pick out the ones that you can confidently cook with the equipment you have. 
 
-Secondly, you may struggle to source some of the ingredients some of the recipes ask for, but, you should be able to substitute with alternatives. For example, in France, fromage frais is a product available just about anywhere. However, you may struggle to find it anywhere else. No problem. Just use cream cheese instead. And, if you just can't source it, don't worry, just omit it. This isn't condon bleu but it's infinitely better and more satisfying than McDonalds.
+Secondly, you may struggle to source some of the ingredients some of the recipes ask for, but, you should be able to substitute with alternatives. For example, in France, fromage frais is a product available just about anywhere. However, you may struggle to find it anywhere else. No problem. Just use cream cheese instead. And, if you just can't source it, don't worry, just omit it. This isn't cordon bleu but it's infinitely better and more satisfying than McDonalds.
 
 Lastly, You're suppose to be enjoying yourself on holiday. This is about communal cooking and spending time with family and friends. You want to cook a meal that everyone can sit around and enjoy. So, if you can, try and cook in a shared setting where you can prepare meals and talk and have fun at the same time.
 
