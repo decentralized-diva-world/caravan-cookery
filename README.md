@@ -2,7 +2,7 @@
 
 Welcome to our cooking book, Caravan Cookery.
 
-This book is a collection of recipes we have made as we have caravanned around Western Europe, France and Spain in particular. Some of newly discovered, some are classics we have enjoyed making (and eating) for years. Some we have been inspired to cook, some are simply convenient "belly-fillers", necessary when the cupboards are bare or the weather is bad. Many aren't even from the same region we have been travelling in; we have just had a craving for Thai green curry in Granada, chilli mussels in Dinard or fish tacos in Magherafelt.
+This book is a collection of recipes we have made as we have caravanned around Western Europe, France and Spain in particular. Some are newly discovered, some are classics we have enjoyed making (and eating) for years. Some we have been inspired to cook, some are simply convenient "belly-fillers", necessary when the cupboards are bare or the weather is bad. Many aren't even from the same region we have been travelling in; we have just had a craving for Thai green curry in Granada, chilli mussels in Dinard or fish tacos in Magherafelt.
 
 A few notes about this cookbook...
 
